@@ -1,2 +1,2 @@
 # t2D-animation
-Happy with a beautiful field
+Happy puppy in the beautiful field
